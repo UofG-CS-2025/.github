@@ -1,4 +1,10 @@
 
+```
+( •_•)
+( •_•)>⌐■-■
+(⌐■_■)
+```
+
 # OwO Hewwo Wewcome to Ouw Owganization~ 🐾✨💖🥺👉👈
 
 Gwasses awe weawwy vewsatiwe OwO 😳✨🐾💕!! Fiwst, you can have gwasses-weawing giwws take them off and suddenwy become beautifuw UwU 🥺💖✨😍🦊, ow have giwws weawing gwasses fwashing those cuuute gwinies >w< 😊💗🌸✨🐱, ow have giwws steawing the pwotagonist's gwasses and putting them on wike, "Nyahaha~, got youw gwasses!! OwO" 😆🐾💕✨🎀 That's just waaaay too kawaii desu ne~!! 🥺👉👈💖✨🌈🐾
