@@ -17,6 +17,10 @@ Dwon't 💖. You 🐾. Think ✨. We 🥺. Weawwy 💕. Need 🌸. To 🐱. Offi
 
 *nuzzwes youw gwasses cowwection* 🐾💕✨ UwU
 
+<p align="center">
+<img src="9554866.jpg" width="800" alt="ouw gwowious weadew uwu 🐾✨"/>
+</p>
+
 ---
 *dis is vewy sewious owganization btw owo pwease take us sewiouswy 🐾✨💖 we do weaw code i pwomise 🥺👉👈*
 
