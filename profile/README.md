@@ -13,3 +13,12 @@ Dwon't 💖. You 🐾. Think ✨. We 🥺. Weawwy 💕. Need 🌸. To 🐱. Offi
 
 ---
 *dis is vewy sewious owganization btw owo pwease take us sewiouswy 🐾✨💖 we do weaw code i pwomise 🥺👉👈*
+
+うおおおおおおおおお‼️‼️‼️‼️‼️
+なんだこのプリティーおケツは‼️‼️‼️💢💢
+これもう愉悦じゃなくて繁殖だろ‼️‼️‼️💢💢
+絶対許さない‼️‼️‼️‼️‼️‼️‼️‼️💢💢
+うおおおおパパンパンパン🤚🤚‼️‼️‼️💢💢
+おしりペンペンするからね‼️‼️‼️💢💢
+ドスケべおしり赤くするからね‼️‼️‼️💢💢
+反省しなさい‼️‼️‼️💢💢
